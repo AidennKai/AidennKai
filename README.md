@@ -1,6 +1,4 @@
-## ![Image](https://github.com/user-attachments/assets/88a7428f-df0c-48b4-bf18-4d7277c35f12)
-∘₊✧──────✧₊∘
-↓ !! 
+ ![Image](https://github.com/user-attachments/assets/b0015294-4bc7-44ff-86b3-64fe4c987beb) 
 
 •Hey Am AindenKai But You Can Call Me Blossoms!I Play Pony town With My Friends Or My Classmates You Can Always See Me There, Probably In TF2 area Or Dandys world Area! , I'm Also Afk Or Offtab It Makes Me Disappear When Am Not Chatting Or Moving Am Just Doing Thing Irl!!. 
 
@@ -11,5 +9,3 @@
 •┈┈┈••✦ ♡ ✦••┈┈┈•
 
 •Yep That's It!! But Btw I Really Appreciate That People Keep Giving Me Crowns Or Anything What They Said But Am Really Happy About It!! Am Also Liking Them Cos Or Oc! Thanks For Understanding!!<3
-
-![Image](https://github.com/user-attachments/assets/1848ec6a-1109-4516-bbeb-33f166038e0b)
