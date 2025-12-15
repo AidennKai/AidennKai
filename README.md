@@ -1,11 +1,1 @@
- ![Image](https://github.com/user-attachments/assets/b0015294-4bc7-44ff-86b3-64fe4c987beb) 
-
-•Hey Am AindenKai But You Can Call Me Blossoms!I Play Pony town With My Friends Or My Classmates You Can Always See Me There, Probably In TF2 area Or Dandys world Area! , I'm Also Afk Or Offtab It Makes Me Disappear When Am Not Chatting Or Moving Am Just Doing Thing Irl!!. 
-
-•┈┈┈••✦ ♡ ✦••┈┈┈•
-
-•Well You Can c+h Me But Yes You Can But Am Probably Asking It, But Sometimes Am Kind Or not But Am Kind To Someone Saying "Appreciate That ^_^" But If There's Name Candy I'm Actually Not kind off Him Bc He keeps Yapping At me Tho!. 
-
-•┈┈┈••✦ ♡ ✦••┈┈┈•
-
-•Yep That's It!! But Btw I Really Appreciate That People Keep Giving Me Crowns Or Anything What They Said But Am Really Happy About It!! Am Also Liking Them Cos Or Oc! Thanks For Understanding!!<3
+  <img width="666" height="375" alt="Image" src="https://github.com/user-attachments/assets/6b3563fb-ea9a-400d-97e5-6c3a8724c5d7" /> 
